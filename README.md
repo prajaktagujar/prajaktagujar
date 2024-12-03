@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @prajaktagujar and i am student of 3 rd year CSE
-- 👀 I’m interested in creating  stuff related to engineering
+- 👀 I’m keen  to leverage my skills in tech.. 
 
 - 😄 Pronouns: ...she/her
   
